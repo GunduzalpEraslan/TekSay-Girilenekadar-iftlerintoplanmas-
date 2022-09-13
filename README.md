@@ -1,0 +1,1 @@
+# TekSay-Girilenekadar-iftlerintoplanmas-
